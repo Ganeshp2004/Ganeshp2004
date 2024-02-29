@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @Ganeshp2004
+- 👀 I’m interested in webdevelopment and IOT
+- 🌱 I’m currently learning webdevelopment
+- ✌️I’m an Atheist
